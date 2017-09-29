@@ -5,3 +5,6 @@ Pour débuter cette **histoire** remetons les choses dans leurs contextes. Pour 
 * d'un narrateur
 * de faits vérifiés
 * d'une lecture préalable de textes divers et variés. 
+* D'un paquet de frites
+* De lunettes
+* Un petit coucou
